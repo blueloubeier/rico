@@ -1,2 +1,2 @@
-# soga
+# rico
 rico破解版
