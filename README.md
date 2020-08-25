@@ -1,2 +1,2 @@
 # soga
-soga破解版
+rico破解版
